@@ -1,0 +1,2 @@
+# Azizul-Bashar-
+Minds 
